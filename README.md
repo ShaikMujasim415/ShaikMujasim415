@@ -2,7 +2,7 @@
 - 👀 I’m interested in software development 
 - 🌱 I’m currently learning technical courses
 - 💞️ I’m looking to collaborate with companies for Internships and jobs
-- 📫 How to reach me through my email shaikmujasim578@gmail.com
+- 📫 How to reach me :Through my email shaikmujasim578@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
